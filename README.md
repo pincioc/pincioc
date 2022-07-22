@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pincioc
+- 👀 I’m interested in all
+- 🌱 I’m currently learning all
+- 💞️ I’m looking to collaborate on interesting project
+- 📫 How to reach me: mauro@openskills.it
